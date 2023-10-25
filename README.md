@@ -15,7 +15,7 @@
 
 **:camera: [Instagram](https://www.instagram.com/loopvpn/)**
 
-**:bird: [Twitter](https://twitter.com/loopvpn)** 
+**:bird: [Twitter](https://twitter.com/LOOP_VPN)** 
 
 **:airplane: [Telegram](http://t.me/loopvpn)**
 ###
