@@ -28,5 +28,5 @@
 
 **:bird: [Twitter](https://twitter.com/LOOP_VPN)** 
 
-**:airplane: [Telegram](http://t.me/loopvpn)**
+**:airplane: [Telegram](https://t.me/loopvpnalwaysonline)**
 ###
