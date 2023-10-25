@@ -11,7 +11,7 @@
 **:e-mail: [邮件客服（分钟级回复）](mailto:service@loopvpn.net)**
 - - - -
 #### 关注社交媒体（请在翻墙网络下打开）
-**:couple: [Facebook](https://www.facebook.com/loopvpn/)** 
+**:couple: [Facebook](https://www.facebook.com/profile.php?id=61551350251614&mibextid=ZbWKwL)** 
 
 **:camera: [Instagram](https://www.instagram.com/loopvpn/)**
 
