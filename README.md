@@ -13,7 +13,7 @@
 #### 关注社交媒体（请在翻墙网络下打开）
 **:couple: [Facebook](https://www.facebook.com/profile.php?id=61551350251614&mibextid=ZbWKwL)** 
 
-**:camera: [Instagram](https://www.instagram.com/loopvpn/)**
+**:camera: [Instagram](https://www.instagram.com/loop_vpn/)**
 
 **:bird: [Twitter](https://twitter.com/LOOP_VPN)** 
 
