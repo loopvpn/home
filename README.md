@@ -13,7 +13,7 @@
 - - - -
 #### 各平台安装包下载（请在浏览器中打开）
 
-**:arrow_double_down: [Android 版本.apk](https://www.loopvpn.top/dowload/loop.apk)**
+**:arrow_double_down: [Android 版本.apk](https://www.loopvpn.top/download/loop.apk)**
 
 
 - - - -
